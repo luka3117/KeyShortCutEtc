@@ -1,6 +1,14 @@
 # KeyShortCutEtc
 情報処理基礎
 
+
+https://youtu.be/a6fIbtFB46g?si=ujLhnHRR6DXE88WC
+
+[html-request](https://www.youtube.com/embed/a6fIbtFB46g0
+
+
+https://youtu.be/a6fIbtFB46g?si=ujLhnHRR6DXE88WC
+
 https://www.youtube.com/watch?v=WGuFofNF1Pk
 Night Owl
 
